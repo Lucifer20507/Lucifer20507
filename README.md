@@ -1,3 +1,3 @@
 👋 Hi, I’m @Lucifer20507
--__-not a socialing tyupe of guy-__-
+-__-not a socializing type of guy-__-
 
